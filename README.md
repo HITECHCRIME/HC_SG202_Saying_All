@@ -20,7 +20,18 @@ Description.
 ## Lyrics
 
 ```
+MOTHNODE_ Say It All
 
+Say it all I know it's a trouble
+Say it all I'll wait up the pain
+Say it all, gonna fall into rubble
+coz I know saying is  not enough
+
+knowing's not enough
+
+Saying ano son
+
+Make it count
 
 ```
 
